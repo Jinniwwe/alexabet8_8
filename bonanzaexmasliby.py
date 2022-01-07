@@ -1,0 +1,1 @@
+https://369club-tw1.pragmaticplay.net/gs2c/html5Game.do?jackpotid=0&gname=Sweet%20Bonanza%20Xmas&extGame=1&ext=0&cb_target=exist_tab&symbol=vs20sbxmas&jurisdictionID=99&lobbyUrl=http%3A%2F%2Falexabet88.id&minilobby=false&mgckey=AUTHTOKEN@644fed41c18b318d756ba344172a73c0d9005dfb9b42f6421fb396d9a22f1666~stylename@396_ug396~SESSION@325000be-46e8-4df2-b401-62ab77f672a0&tabName=
