@@ -1,0 +1,1 @@
+https://369club-tw1.pragmaticplay.net/gs2c/html5Game.do?jackpotid=0&gname=Gates%20of%20Olympus&extGame=1&ext=0&cb_target=exist_tab&symbol=vs20olympgate&jurisdictionID=99&lobbyUrl=http%3A%2F%2Falexabet88.id&minilobby=false&mgckey=AUTHTOKEN@b3528d8d57c466c0bafd95c1567c80be06ee676013ea02288f4c35d6d336d2f4~stylename@396_ug396~SESSION@0182b410-6047-4d4e-8c10-a0f489903ae0&tabName=
